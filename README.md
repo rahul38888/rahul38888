@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Rahul
+Passionate explorer embracing curiosity, coding, and continuous learning adventures. 🚀✨
