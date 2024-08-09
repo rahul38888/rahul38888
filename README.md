@@ -1,1 +1,1 @@
-Passionate explorer embracing curiosity, coding, and continuous learning adventures. 🚀✨
+Experienced software developer with a strong background in Java, Python, cloud technologies, and data management. Proven track record of leading successful projects, optimizing workflows for cost efficiency, and implementing innovative solutions. 🚀✨
